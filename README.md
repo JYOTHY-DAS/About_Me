@@ -5,5 +5,4 @@
 
 #### Let's connect and collaborate on exciting data projects!
 ## Jyothy Das
-## [E-mail](jyothydas11@gmail.com)
 ## [LinkedIn](https://www.linkedin.com/in/jyothy-das/)
